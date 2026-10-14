@@ -5,5 +5,3 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning ...長榮大學
 - 🤔 I’m looking for help with ... friend
 - 💬 Ask me about ... 籃球
-
--->Management Certifications: ESG Carbon Emission Management Certification
